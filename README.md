@@ -1,1 +1,1 @@
-# myfunnycodes learned olc one lonely coder on YouTube
+# myfunnycodes learned from olc:one lonely coder on YouTube
